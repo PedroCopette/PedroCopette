@@ -2,7 +2,7 @@
 
 **`Estudante de Ciência da Computação | Desenvolvedor Web`**
 
-Me chamo Pedro Copette Lixinski, tenho 20 anos e sou estudante de Ciência da Computação, com interesse em Desenvolvimento Web. E busco minha primeira oportunidade de estágio ou emprego para aplicar e ampliar minhas habilidades na prática.  
+Me chamo Pedro Copette Lixinski, tenho 20 anos e sou estudante de Ciência da Computação na URI Câmpus Santiago, com interesse em Desenvolvimento Web. E busco minha primeira oportunidade de estágio ou emprego para aplicar e ampliar minhas habilidades na prática.  
 
 Tenho facilidade para aprender, sou dedicado, proativo e estou totalmente à disposição para adquirir novos conhecimentos e me desenvolver conforme as necessidades da equipe e da empresa.
 
